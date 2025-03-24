@@ -1,4 +1,4 @@
-# Projecto Final Recurso e Epoca Especial 2024 
+# Projecto Final 2024 
 
 **UNIVERSIDADE LUSÓFONA DE HUMANIDADES E TECNOLOGIAS**
 
